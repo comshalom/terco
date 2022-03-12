@@ -8,7 +8,7 @@ _Vinde Espírito Santo_
 
 Divino Jesus, eu vos ofereço este Terço/Rosário que vou rezar, contemplando os mistérios de nossa Redenção. Concedei-me, pela intercessão de Maria, vossa Mãe Santíssima, a quem me dirijo, as graças necessárias para bem rezá-lo para ganhar as indulgências desta santa devoção.
 
-[_Suas intenções_]
+[_Suas intenções_](Opcional)
 
 ## Creio em Deus Pai
 
