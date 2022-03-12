@@ -22,7 +22,7 @@ Pai Nosso que estais nos céus, santificado seja o Vosso nome, venha a nós o Vo
 
 Ave Maria cheia de graça, o Senhor é convosco, bendita sois vós entre as mulheres e bendito é o fruto do vosso ventre Jesus. Santa Maria Mãe de Deus, rogai por nós pecadores, agora e na hora de nossa morte. Amém.
 
-- O anjo anunciou à Maria e ela consebeu do Espírito Santo.
+- O anjo anunciou à Maria e ela concebeu do Espírito Santo.
   _Ave Maria..._
 - Eis aqui a Serva do Senhor, faça-se em mim, segundo a Vossa palavra.
   _Ave Maria..._
