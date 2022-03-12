@@ -2,7 +2,7 @@
 
 ## Sinal da Cruz.
 
-_Vinde Espírito Santo_
+_Vinde Espírito Santo_ (Opcional)
 
 ## Oferecimentos:
 
