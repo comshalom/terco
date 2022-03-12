@@ -90,4 +90,5 @@ _Na oração do Rosário contemplam-se todos os mistérios. No caso da oração 
 **Salve Rainha, Mãe de Misericórdia, vida, doçura, esperança nossa, salve! A vós bradamos, os degredados filhos de Eva; a vós suspiramos gemendo e chorando neste vale de lágrimas. Eia, pois, advogada nossa esses vossos olhos misericordiosos a nós volvei, e depois deste desterro nos mostrai a Jesus, bendito fruto do vosso ventre, ó Clemente, ó Piedosa, ó Doce, sempre virgem Maria.**
 
 **_Rogai por nós, Santa Mãe de Deus_**
+<br />
 **_Para que sejamos dignos das promessas de Cristo. Amém._**
