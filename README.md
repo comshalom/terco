@@ -6,7 +6,7 @@ _Vinde Espírito Santo_ (Opcional)
 
 ## Oferecimentos:
 
-Divino Jesus, eu vos ofereço este Terço/Rosário que vou rezar, contemplando os mistérios de nossa Redenção. Concedei-me, pela intercessão de Maria, vossa Mãe Santíssima, a quem me dirijo, as graças necessárias para bem rezá-lo para ganhar as indulgências desta santa devoção.
+Divino Jesus, eu vos ofereço este Terço/Rosário que vou rezar, contemplando e meditando os mistérios de nossa Redenção. Concedei-me, pela intercessão de Maria, vossa Mãe Santíssima, a quem me dirijo, as graças necessárias para bem rezá-lo para ganhar as indulgências desta santa devoção.
 
 _Suas intenções_ (Opcional)
 
@@ -85,7 +85,7 @@ _Na oração do Rosário contemplam-se todos os mistérios. No caso da oração 
 
 5.º – Coroação de Maria Santíssima como Rainha do Céu e da Terra (cf. Ap 12 ,1-4).
 
-**_Infinitas graças vos damos, Soberana Rainha, pelos benefícios que todos os dias recebemos de vossa mão liberais. Dignai-vos, agora e para sempre, tomar-nos debaixo do vosso poderoso amparo e para mais vos obrigar vos saudamos com uma Salve Rainha:_**
+**_Infinitas graças vos damos, Soberana Rainha, pelos benefícios que todos os dias recebemos de vossa mão liberais. Dignai-vos, agora e para sempre, tomar-nos debaixo do vosso poderoso amparo e para mais vos alegrar, vos saudamos com uma Salve Rainha:_**
 
 **Salve Rainha, Mãe de Misericórdia, vida, doçura, esperança nossa, salve! A vós bradamos, os degredados filhos de Eva; a vós suspiramos gemendo e chorando neste vale de lágrimas. Eia, pois, advogada nossa esses vossos olhos misericordiosos a nós volvei, e depois deste desterro nos mostrai a Jesus, bendito fruto do vosso ventre, ó Clemente, ó Piedosa, ó Doce, sempre virgem Maria.**
 
