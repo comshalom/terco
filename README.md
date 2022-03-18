@@ -10,6 +10,8 @@ Divino Jesus, eu vos ofereço este Terço/Rosário que vou rezar, contemplando e
 
 _Suas intenções_ (Opcional)
 
+**Mãe Santíssima, peço a vossa proteção e intercessão para apresentar nossas intensões ao seu Filho, nosso Senhor Jesus Cristo. para que Ele providencie da melhor forma.**
+
 ## Creio em Deus Pai
 
 Creio em Deus Pai todo-poderoso, Criador do céu e da terra, e em Jesus Cristo, seu único Filho, nosso Senhor, que foi concebido pelo poder do Espírito Santo, nasceu da Virgem Maria, padeceu sob Pôncio Pilatos, foi crucificado, morto e sepultado; desceu à mansão dos mortos; ressuscitou ao terceiro dia; subiu aos céus, está sentado à direita de Deus Pai todo poderoso, donde há de vir julgar os vivos e os mortos. Creio no Espírito Santo, na Santa Igreja Católica, na comunhão dos santos, na remissão dos pecados, na ressurreição da carne e na vida eterna. Amém.
