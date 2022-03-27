@@ -10,7 +10,7 @@ Divino Jesus, eu vos ofereço este Terço/Rosário que vou rezar, contemplando e
 
 _Suas intenções_ (Opcional)
 
-**Mãe Santíssima, peço a vossa proteção e intercessão para apresentar nossas intensões ao seu Filho, nosso Senhor Jesus Cristo. para que Ele providencie da melhor forma.**
+<!-- **Mãe Santíssima, peço a vossa proteção e intercessão para apresentar nossas intensões ao seu Filho, nosso Senhor Jesus Cristo. para que Ele providencie da melhor forma.** -->
 
 ## Creio em Deus Pai
 
