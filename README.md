@@ -81,7 +81,7 @@ _Na oração do Rosário contemplam-se todos os mistérios. No caso da oração 
 
 2.º – A ascensão de Jesus Cristo aos Céus (cf. Lc 24, 50-53);
 
-3.º – A vinda do Espírito Santo sobre os apóstolos no Cenáculo em Jerusalém (cf. At 2, 1-13);
+3.º – A vinda do Espírito Santo sobre Nossa Senhora e os apóstolos no Cenáculo em Jerusalém (cf. At 2, 1-13);
 
 4.º – A assunção de Nossa Senhora ao Reino dos Céus (cf. Sl 44, 11-18);
 
